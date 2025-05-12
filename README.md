@@ -1,5 +1,1 @@
-
-
-elo
-wow!!!!
-dupa
+usunalem wszystko
