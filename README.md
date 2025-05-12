@@ -1,3 +1,0 @@
-usunalem wszystko
-
-oki super
